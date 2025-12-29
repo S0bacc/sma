@@ -1,1 +1,1 @@
-# sma
+Some people get annoyed by ads, some look for people to help with ads, some actually work in advertising, and we all have to admit that without advertising and marketing in general, there wouldn’t be much of anything in business, especially in e-commerce. Working with agencies like a [social media agency in Miami](https://socialflyny.com/services/social-media-marketing/) is way more effective, because it’s not just one marketer working on your task, but a full team of specialists and experts who really know how to use marketing tools.	
